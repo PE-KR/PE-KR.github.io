@@ -23,3 +23,8 @@ Matthias Hegel sagte einmal:
 > schließlich das eine winzig kleine Detail herauszufiltern, das
 > den Täter schließlich verrät.
 
+
+Da es sich bislang um ein Buch bzw. Hörbuch handelt, folgt hier ein Foto von Sebastian Fitzek:
+
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/2/2f/Sebastian_Fitzek_-_Deutscher_Radiopreis_Hamburg_2016_01.jpg/98px-Sebastian_Fitzek_-_Deutscher_Radiopreis_Hamburg_2016_01.jpg"/>
