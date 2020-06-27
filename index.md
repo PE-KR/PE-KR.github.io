@@ -14,3 +14,12 @@ Worum geht es? Die kleinste Abweichung im Klang einer Stimme genügt dem berühm
 * stets unnahbar, ja arrogant
 * unangenehm: er liegt mit seinen Analysen meist richtig
 * er liebt seine Tochter über alles
+
+
+Matthias Hegel sagte einmal:
+
+> Forensische Phonetik hat auch viel mit Technik zu tun: 
+> Geräusche sampeln, isolieren, in den Kontext setzen, um
+> schließlich das eine winzig kleine Detail herauszufiltern, das
+> den Täter schließlich verrät.
+
